@@ -1,4 +1,17 @@
-# Free RDP 6 HOURS
+#Root Of Cyber
+- YouTube Channel: https://www.youtube.com/c/RootOfCyber
+
+- Facebook Group: https://www.facebook.com/groups/1063964397415804/
+
+- Facebook Page: https://www.facebook.com/RootOfCyber
+
+- Telegram Group: https://t.me/joinchat/Nw1kcCWDHDFjZTJl
+
+- Telegram Channel:https://t.me/RootOfCyber
+
+
+
+## Free RDP 6 HOURS
 
 it's all free, don't be stingy ⭐️ yes: D
 
@@ -30,7 +43,7 @@ DON'T USE FOR MINING OR ILLEGAL USE
 
 DON'T RECODE THIS SC!
 
-# Developer
+## Developer
 
 - facebook https://www.facebook.com/0MahmudRafi0
 - Telegram https://www.t.me/Mahmud_Rafi 
